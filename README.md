@@ -10,7 +10,7 @@ Description.
 
 > **Title:** Triumvirat / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:**  / **Lyrics:** MOTHNODE
 
 > **Beat:**
 
