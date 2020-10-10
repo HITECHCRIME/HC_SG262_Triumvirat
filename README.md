@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Triumvirat
 
 **Listen now:** 
 
@@ -33,3 +33,5 @@ Description.
 ## Short Cinematic Film
 
 ## Miscellaneous Notes
+
+Very darkwave, spatial synth, Cyberpunk x classic rap beat.
